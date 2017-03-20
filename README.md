@@ -1,0 +1,1 @@
+# wisdomoftourism-cms
